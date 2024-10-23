@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Siddhartha Das.
+- I’m currently learning many things.
+- BCDY owner.
+- Locked in.
